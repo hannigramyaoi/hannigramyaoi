@@ -4,4 +4,4 @@ Look at my smelly dog I love her
 --------------------------------
 [Hannigram eye sex](https://youtu.be/euqIyk3EB5M?si=rDqLNfx5vRm5gMuv)
 
-LEAVE SOMETHING ON MY cbox </3 I may check it
+LEAVE SOMETHING ON MY GUESTBOOK 
