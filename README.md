@@ -3,4 +3,4 @@
 Look at my smelly dog I love her
 --------------------------------
 
-Bios a joke please..
+Bio is a joke please..
