@@ -1,1 +1,1 @@
-![](https://files.catbox.moe/0sjjen.jpeg)
+![](https://files.catbox.moe/w4wuua.png)
